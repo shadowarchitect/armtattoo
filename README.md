@@ -1,5 +1,9 @@
 # He Tattooed His Right Arm to Win BUT He Lost Everything Instead
 
+![Bruna_480x480](https://github.com/user-attachments/assets/0dc67bd3-8ede-4a47-8450-0e711a14cc61)
+
+[![YouTube](https://img.shields.io/badge/YouTube-Subscribe-red)](https://www.youtube.com/@tattoofengshui)
+
 ## How a Bold Tattoo Quietly Killed His Sales Momentum, Income, and Career Flow
 
 A senior sales executive once believed that confidence was everything.
